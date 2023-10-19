@@ -1,2 +1,1 @@
-# dokumen_
-dokumen
+Dokumen ijasah dan akreditasi
